@@ -1,4 +1,4 @@
-# Chapter-1 – Meninggalkan Rumah
+# Chapter-1 Meninggalkan Rumah
 
 Tie Zhu, yang memiliki nama asli Wang Lin, adalah seorang anak yang duduk termenung di jalan desa. Nama panggilan "Tie Zhu" diberikan oleh ayahnya karena kesehatannya yang lemah saat masih kecil, dengan harapan agar ia bisa bertahan hidup. Keluarga Wang dikenal sebagai keluarga tukang kayu terkemuka di daerah tersebut, meskipun ayah Tie Zhu, yang lahir dari seorang selir, tidak dapat mewarisi bisnis keluarga dan memilih menetap di desa.
 
