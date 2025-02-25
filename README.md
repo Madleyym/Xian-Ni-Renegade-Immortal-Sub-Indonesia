@@ -26,9 +26,7 @@ Proyek ini dilengkapi dengan berbagai aset visual yang dapat ditemukan di direkt
 ### ☕ Kontribusi dan Dukungan
 Jika Anda mendapati proyek ini bermanfaat dan ingin memberikan dukungan untuk pengembangan konten serupa di masa mendatang, Anda dapat berkontribusi melalui:
 
-- **Saweria**: [https://saweria.co/kamu](https://saweria.co/kamu) 💰
-- **Trakteer**: [https://trakteer.id/kamu](https://trakteer.id/kamu) 🎁
-- **PayPal**: [https://paypal.me/kamu](https://paypal.me/kamu) 💳
+- **Saweria**: [https://saweria.co/kamu](https://saweria.co/devsjr) 💰
 
 ### 🌟 Apresiasi
 Terima kasih telah menjadi bagian dari komunitas pembaca novel kultik ini. Jika Anda menghargai karya ini, mohon berikan bintang ⭐ pada repositori GitHub dan ikuti akun saya untuk mendapatkan pembaruan konten serupa di masa mendatang.
