@@ -10,4 +10,5 @@ Wang Lin juga diuji, tetapi dinyatakan tidak memenuhi syarat. Dia merasa terkeju
 
 Pria paruh baya itu membawa tiga pemuda yang dipilih untuk bertemu dengan bapa bangsa dan menemukan para master mereka. Wang Lin, dengan mata penuh tekad, memulai ujian ketekunan dengan menaiki tangga batu tanpa ragu-ragu.
 
+##
 Selamat membaca dan mengikuti perjalanan Wang Lin di bab ketiga ini!
