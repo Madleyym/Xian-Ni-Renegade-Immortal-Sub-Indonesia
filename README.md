@@ -1,7 +1,7 @@
 # 🔥 Xian Ni - Renegade Immortal 🔥
 ## 📚 Rangkuman & Terjemahan Bahasa Indonesia
 
-![Xian Ni Wallpaper](../images/images.jpeg)
+![WangLIN](images/images.jpeg)
 
 Selamat datang pada proyek penerjemahan dan perangkuman novel kultik *Xian Ni* (Renegade Immortal). Proyek ini mencakup seluruh perjalanan cerita dari Chapter 1 hingga Chapter 2088 dalam Bahasa Indonesia yang dikemas secara ringkas namun komprehensif.
 
@@ -19,7 +19,7 @@ Dan seterusnya hingga seluruh 2088 chapter tersedia dalam format yang konsisten.
 ### 🖼️ Aset Visual
 Proyek ini dilengkapi dengan berbagai aset visual yang dapat ditemukan di direktori:
 ```
-![Xian Ni Wallpaper](../images/ciye.jpeg)
+![Xian Ni Wallpaper](images/ciye.jpeg)
 ```
 
 ### ☕ Kontribusi dan Dukungan
