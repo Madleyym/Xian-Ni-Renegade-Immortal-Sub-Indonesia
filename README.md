@@ -35,5 +35,5 @@ Terima kasih telah menjadi bagian dari komunitas pembaca novel kultik ini. Jika 
 
 # ⚠️ Disclaimer ⚠️
 Terjemahan ini dibuat hanya untuk keperluan pribadi dan non-komersial. 📝  
-Hak cipta tetap milik penulis dan penerbit aslinya *penulis Er Gen (耳根) penerbit resmi* ©️  
+Hak cipta tetap milik penulis dan penerbit aslinya penulis *Er Gen* (耳根) penerbit resmi ©️  
 Jika ada pihak yang berkeberatan, silakan hubungi saya. 📧
