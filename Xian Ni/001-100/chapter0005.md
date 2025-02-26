@@ -1,16 +1,16 @@
 # Chapter 5 – Kembalinya
 
-Pada akhirnya, tidak satupun dari 11 pemuda yang lulus ujian. Ada seorang gadis muda yang berhasil mencapai Wang Lin.
+Pada akhirnya, tidak satupun dari 11 pemuda yang lulus ujian. Hanya seorang gadis muda yang berhasil mencapai tahap akhir.
 
 Pada hari itu, semua pemuda yang gagal dalam ujian dikirim kembali ke dasar gunung. Para murid Heng Yue Sekte membawa mereka pulang satu per satu. Orang yang datang untuk membawa pulang Wang Lin adalah pemuda yang sama yang telah menjemputnya. Di belakangnya adalah Wang Zhuo dan Wang Hao.
 
 Pemuda itu menggenggam tangannya dan berkata, “Saudara Wang Zhuo, selamat telah menjadi murid Paman-Guru. Anda memiliki masa depan yang cerah di depan Anda.”
 
-Wajah Wang Zhuo menunjukkan ekspresi arogan. Dia dengan bangga berkata, “Itu wajar. Guru berkata bahwa setelah saya selesai mengurus urusan duniawi di rumah, dia akan mengajari saya teknik kultivator setelah saya kembali.”
+Wajah Wang Zhuo menunjukkan ekspresi arogan. Dia dengan bangga berkata, “Itu wajar. Guru berkata bahwa setelah saya menyelesaikan urusan duniawi di rumah, dia akan mengajari saya teknik kultivator setelah saya kembali.”
 
-Wang Hao mengangkat kepalanya dan menambahkan di samping, “Aku selalu meremehkan sikap sombongmu. Jadi bagaimana jika Anda memiliki seorang master? Saya akan bisa belajar bagaimana membuat pil abadi.”
+Wang Hao mengangkat kepalanya dan menambahkan di samping, “Aku selalu meremehkan sikap sombongmu. Jadi bagaimana jika kamu memiliki seorang master? Aku akan bisa belajar bagaimana membuat pil abadi.”
 
-Wang Zhuo menatap tajam Wang Hao, lalu dia mengalihkan pandangannya ke Wang Lin, yang diam-diam berdiri di sana. Dia tersenyum, dan berkata, “Tie Zhu, bagaimana? Saya katakan sebelumnya bahwa Anda tidak memiliki kemampuan, tetapi Anda dan ayah Anda tidak akan mempercayainya. Sekarang kita tahu hasilnya.”
+Wang Zhuo menatap tajam Wang Hao, lalu dia mengalihkan pandangannya ke Wang Lin, yang diam-diam berdiri di sana. Dia tersenyum, dan berkata, “Tie Zhu, bagaimana? Saya katakan sebelumnya bahwa kamu tidak memiliki kemampuan, tetapi kamu dan ayahmu tidak percaya. Sekarang kita tahu hasilnya.”
 
 Tie Zhu mengangkat kepalanya, sedikit menatap Wang Zhuo, dan berkata, “Tuan, orang tua saya sedang menunggu saya di rumah. Tolong bawa saya kembali secepat mungkin.”
 
@@ -38,13 +38,13 @@ Ayah Tie Zhu memandang semua kerabat yang dulu meremehkannya. Semua kesedihan da
 
 “Tie Zhu, kamu harus dipilih!”
 
-“Kakak ipar kedua, kali ini pernikahanmu dengan saudara laki-laki kedua membawakan keberuntungan untukmu. Memiliki Tie Zhu sebagai anak Anda, siapa di daerah tetangga yang tidak akan mengenal Anda?”
+“Kakak ipar kedua, kali ini pernikahanmu dengan saudara laki-laki kedua membawa keberuntungan untukmu. Memiliki Tie Zhu sebagai anakmu, siapa di daerah tetangga yang tidak akan mengenalmu?”
 
 “Kakak ipar kedua, anakmu Tie Zhu memiliki kemampuan lebih dari anakku. Sejak Tie Zhu masih kecil, dia sangat pintar.”
 
-“Ibu Tie Zhu, meski kami satu keluarga, ada banyak kerabat kerabat yang sudah menikah saat ini. Putri saya belum menikah, dan seusia dengan Tie Zhu. Tie Zhu tampan dan aku menyukainya. Mengapa kita tidak mengikat ikatan antara keluarga kita?” Seperti ayah Tie Zhu, ibunya dikelilingi oleh sekelompok kerabat perempuan yang dengan antusias mengobrol di sampingnya.
+“Ibu Tie Zhu, meski kami satu keluarga, ada banyak kerabat yang sudah menikah saat ini. Putri saya belum menikah, dan seusia dengan Tie Zhu. Tie Zhu tampan dan aku menyukainya. Mengapa kita tidak mengikat ikatan antara keluarga kita?” Seperti ayah Tie Zhu, ibunya dikelilingi oleh sekelompok kerabat perempuan yang dengan antusias mengobrol di sampingnya.
 
-Ayah Wang Zhao terus menatap acuh tak acuh sepanjang waktu. Dia diam-diam menginginkan Immortal untuk datang dan menyampaikan berita bahwa Tie Zhu belum dipilih, jadi dia bisa melihat reaksi saudara keduanya.
+Ayah Wang Zhuo terus menatap acuh tak acuh sepanjang waktu. Dia diam-diam menginginkan Immortal untuk datang dan menyampaikan berita bahwa Tie Zhu belum dipilih, jadi dia bisa melihat reaksi saudara keduanya.
 
 Saat dia memikirkan hal ini, dia tertawa dan bersulang untuk kerabat di sebelahnya yang memuji anaknya.
 
@@ -58,7 +58,7 @@ Murid Heng Yue Sekte menyapu seluruh area dan diam-diam menghela nafas. Dia inga
 
 “Praktisi abadi tidak dapat memiliki keinginan duniawi, urus apa yang Anda butuhkan, saya akan menjemput Anda dalam tiga hari.” Suaranya menggema dari kejauhan.
 
-Ketika ayah Wang Zhuo melihat cuti abadi, dia dengan cepat menghampiri putranya dan bertanya, “Apakah Immortal Hui Bing mengambilmu sebagai muridnya?”
+Ketika ayah Wang Zhuo melihat pedang cahaya pergi, dia dengan cepat menghampiri putranya dan bertanya, “Apakah Immortal Hui Bing mengambilmu sebagai muridnya?”
 
 Wang Zhuo berkata, dengan wajah penuh kebanggaan dan kesombongan, “Tentu saja. Guru telah mengatakan bahwa dalam sepuluh tahun saya akan bisa menjadi kepala Murid Sekte Heng Yue.”
 
@@ -66,11 +66,22 @@ Ayah Wang Zhuo sangat senang. Dia menepuk pundak putranya dengan keras, dan tert
 
 Wajah ayah Wang Hao juga memiliki ekspresi cemas saat menatap Wang Hao. Ketika dia hendak bertanya, Wang Hao menghela nafas dan berkata “Ayah, kamu tidak perlu bertanya. Putramu sudah menjadi Murid Sekte Heng Yue.”
 
-Ayah Wang Hao sangat gembira. Dia mengambil cangkirnya dan meminumnya dengan keras. Wang Zhuo memiliki ekspresi jijik di wajahnya. Dia berkata dengan nada menghina, “Paman Ketiga, kamu melahirkan seorang putra yang baik. Dia telah kehilangan banyak wajah dari Keluarga Wang. Di depan semua orang dia menyanjung yang abadi dan kemudian, hanya dengan mengandalkan suap dia bisa menjadi penolong.”
+Ayah Wang Hao sangat gembira. Dia mengambil cangkirnya dan meminumnya dengan keras. Wang Zhuo memiliki ekspresi jijik di wajahnya. Dia berkata dengan nada menghina, “Paman Ketiga, kamu melahirkan seorang putra yang baik. Dia telah kehilangan banyak muka dari Keluarga Wang. Di depan semua orang dia menyanjung yang abadi dan kemudian, hanya dengan mengandalkan suap dia bisa menjadi penolong.”
 
-Wang Hao mengangkat alisnya dan berkata, “Aku senang, jadi kenapa? Di masa depan, mari kita lihat siapa yang memiliki teknik kultivator yang lebih kuat, lalu kita akan melihat siapa yang kehilangan wajah kekeluargaan.”
+Wang Hao mengangkat alisnya dan berkata, “Aku senang, jadi kenapa? Di masa depan, mari kita lihat siapa yang memiliki teknik kultivator yang lebih kuat, lalu kita akan melihat siapa yang kehilangan muka keluarga.”
 
 Ayah Tie Zhu melihat ekspresi tertekan yang dikenakan putranya, menyebabkan tubuhnya bergidik. Dia memiliki perasaan yang tidak menyenangkan.
 
 “Tie Zhu, apa … bagaimana denganmu?” Ibu Tie Zhu bertanya, penuh harapan.
 
+## Opini
+
+- **Opini:** Kembalinya Wang Lin ke rumah dengan perasaan putus asa menunjukkan betapa pentingnya harapan dan penerimaan dalam keluarga dan komunitas.
+- **Opini:** Respon kerabat Wang Lin yang berubah setelah mengetahui kegagalannya menggambarkan bagaimana kesuksesan dan kegagalan seseorang dapat mempengaruhi pandangan orang lain terhadap mereka.
+- **Opini:** Meskipun gagal dalam ujian, ketekunan dan semangat Wang Lin tetap merupakan kualitas yang patut dihargai dan dapat membantunya di masa depan.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._

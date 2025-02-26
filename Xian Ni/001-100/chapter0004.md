@@ -1,10 +1,10 @@
 # Chapter 4 – Tak Berperasaan
 
-Tangga batu yang tidak rata sangat berbahaya di kedua sisinya. Kesalahan sekecil apapun akan menyebabkan seseorang terpeleset dan jatuh.
+Tangga batu yang tidak rata sangat berbahaya di kedua sisinya. Kesalahan sekecil apapun bisa menyebabkan seseorang terpeleset dan jatuh.
 
-Setelah kurang dari setengah hari, kaki Wang Lin terasa seperti terbuat dari timah. Dia berkeringat dan kehabisan nafas, bahkan sulit untuk bergerak. Mendongak dari bawah gunung, jalan setapaknya tidak tampak panjang, tetapi sekarang, jejak ini terasa seperti tidak ada akhirnya. Hati Wang Lin mencelos. Dia tidak bisa membantu tetapi menimbulkan pikiran putus asa.
+Setelah kurang dari setengah hari, kaki Wang Lin terasa seperti terbuat dari timah. Dia berkeringat dan kehabisan napas, bahkan sulit untuk bergerak. Dari bawah gunung, jalan setapaknya tidak tampak panjang, tetapi sekarang, jejak ini terasa seperti tidak ada akhirnya. Hati Wang Lin mencelos. Dia tidak bisa menahan pikiran putus asa.
 
-Di depannya ada selusin anak laki-laki yang kuat secara fisik, perlahan mendaki. Mereka semua juga kehabisan nafas. Sampai saat ini, belum ada yang menyerah.
+Di depannya ada selusin anak laki-laki yang kuat secara fisik, perlahan mendaki. Mereka semua juga kehabisan napas. Sampai saat ini, belum ada yang menyerah.
 
 Wang Lin mengertakkan gigi. Dia tahu ini adalah kesempatan terakhirnya. Harapan orang tuanya memenuhi pikirannya. Pada saat itu juga, kaki seorang anak laki-laki di belakangnya tergelincir. Anak laki-laki itu jatuh dari sisi gunung sambil berteriak.
 
@@ -18,7 +18,7 @@ Wang Lin tidak tahu berapa banyak dari rekan-rekan ini yang akan menyerah, dia h
 
 Seorang pria paruh baya dengan kulit yang sakit-sakitan melayang menuruni tangga dari puncak gunung. “Anak-anak kecil, pertahankan hatimu kuat, karena jalan ini kejam. Tidak akan sia-sia, tidak ada yang sia-sia…” Dia menghela nafas panjang saat dia melayang melewati pemuda pendaki.
 
-Pria paruh baya itu melewati Wang Lin. Ini adalah pemuda keenam yang dia lewati, dan dia yang paling menyedihkan dari kelompok itu. Dengan pakaian berlumuran darah, dia sepertinya berdarah dimana-mana. Lutut dan jari kakinya hancur. Wang Lin sedang memanjat menggunakan tangannya pada saat ini. Pria paruh baya itu menghela nafas keras dan bertanya, “Anakku, siapa namamu?”
+Pria paruh baya itu melewati Wang Lin. Ini adalah pemuda keenam yang dia lewati, dan dia yang paling menyedihkan dari kelompok itu. Dengan pakaian berlumuran darah, dia sepertinya berdarah di mana-mana. Lutut dan jari kakinya hancur. Wang Lin sedang memanjat menggunakan tangannya pada saat ini. Pria paruh baya itu menghela nafas keras dan bertanya, “Anakku, siapa namamu?”
 
 Visi Wang Lin kabur. Satu-satunya pikiran di kepalanya adalah mencapai puncak atau mati. Dia bahkan tidak mendengar pertanyaan pria paruh baya itu. Di matanya, jejak kecil ini adalah satu-satunya hal yang penting.
 
@@ -70,5 +70,16 @@ Semua pemuda lainnya memandang Wang Lin dengan ekspresi mengejek di mata mereka.
 
 Dengan tawa pahit, Wang Lin bisa merasakan luka menganga di hatinya semakin membesar. Mata berharap orang tuanya berangsur-angsur menghilang dari pikirannya.
 
-Pria dengan mata putih menjadi dingin lagi dan dia berkata, “Gagal. Lanjut.”
+Pria dengan baju putih kembali menjadi dingin dan berkata, “Gagal. Lanjut.”
 
+## Opini
+
+- **Opini:** Ketekunan Wang Lin mendaki tangga batu yang berbahaya menunjukkan komitmen dan determinasi luar biasa, meskipun fisiknya lemah.
+- **Opini:** Pria paruh baya yang merasa tersentuh oleh ketekunan Wang Lin menunjukkan bahwa ketekunan dan tekad dapat membuat seseorang diperhatikan, meskipun bakatnya kurang.
+- **Opini:** Ujian roh pedang yang menguji ikatan spiritual menunjukkan bahwa menjadi murid sejati tidak hanya tentang kekuatan fisik atau bakat, tetapi juga tentang koneksi spiritual yang mendalam.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._
