@@ -16,7 +16,7 @@ Wang Lin tertegun, dia sangat akrab dengan wajah itu. Wajah itu persis sama deng
 
 “Saudara Liu, orang tua saya baik-baik saja. Anda tidak perlu khawatir.” Wang Lin dengan hati-hati menjawab, karena dia tidak yakin apa yang Liu lakukan.
 
-Murid Liu dengan hangat berkata, sambil membusungkan dadanya, “Saudaraku, mulai sekarang kamu tidak perlu bangun terlalu pagi. Kakak laki-laki Anda bercanda dengan Anda, menyuruh Anda untuk mengisi sepuluh tong sehari, tetapi Anda pergi dan benar-benar mempercayai saya. Mulai sekarang, Anda hanya perlu mengisi satu tong dalam sehari. Bahkan jika Anda tidak selesai tepat waktu, Anda bisa pergi makan saat makanan disajikan. Jika ada yang menyusahkanmu, beritahu kakakmu!”
+Murid Liu dengan hangat berkata, sambil membusungkan dadanya, “Saudaraku, mulai sekarang kamu tidak perlu bangun terlalu pagi. Kakak laki-lakimu bercanda denganmu, menyuruhmu untuk mengisi sepuluh tong sehari, tetapi kamu pergi dan benar-benar mempercayai saya. Mulai sekarang, kamu hanya perlu mengisi satu tong dalam sehari. Bahkan jika kamu tidak selesai tepat waktu, kamu bisa pergi makan saat makanan disajikan. Jika ada yang menyusahkanmu, beritahu kakakmu!”
 
 Wajah Wang Lin berubah warna. Dia ragu-ragu bertanya, “Kakak, apakah ada masalah yang ingin saya tangani?”
 
@@ -54,3 +54,14 @@ Setelah tiba di kediaman Elder Sun, pemuda berbaju putih pergi. Sebelum pergi, d
 
 Wang Lin sedikit gugup saat dia mendorong gerbang dan masuk. Saat dia masuk, dia melihat seorang lelaki tua keluar dari sebuah kamar di taman. Wajah lelaki tua itu penuh kerutan, matanya cerah, dan dia mengamati Wang Lin dengan tatapan dingin.
 
+## Opini
+
+- **Opini:** Kecurigaan dan perhatian yang diterima Wang Lin dari murid lain menunjukkan bahwa bahkan dalam lingkungan kompetitif, ketekunan dan perubahan perilaku dapat menarik perhatian.
+- **Opini:** Perubahan sikap Murid Liu terhadap Wang Lin menunjukkan bagaimana kekuasaan dan pengaruh dapat mengubah dinamika hubungan.
+- **Opini:** Keberanian Wang Lin dalam menghadapi kecurigaan dan tatapan dingin Penatua Sun menunjukkan bahwa dia siap menghadapi tantangan yang lebih besar demi mencapai tujuannya.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._

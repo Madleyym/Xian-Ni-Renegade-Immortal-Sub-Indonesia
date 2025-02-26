@@ -4,7 +4,7 @@ Bulan ini, hampir semua murid kehormatan mengenal Wang Lin. Mereka semua membawa
 
 Wang Lin mengabaikan mereka. Dia tahu bahwa pikiran semua murid kehormatan ini terpelintir. Sebelum dia datang, semua murid kehormatan ada di bawah. Mereka tidak punya tempat untuk melampiaskan amarah dan frustrasinya. Namun, sekarang dia, yang memasuki sekte dengan mencoba bunuh diri ada di sini, mereka melihatnya sebagai seseorang yang bahkan lebih rendah dari mereka dan melampiaskannya dengan menggertaknya.
 
-Dia tertawa dingin pada dirinya sendiri. Dia tahu bahwa ini bukanlah sesuatu yang dapat dia lakukan. Di sekte, yang kuat selalu benar. Beberapa murid kehormatan telah lama berada di sini, dan tubuh mereka semua sangat kuat. Beberapa bahkan telah mempelajari beberapa teknik abadi. Jika dia melawan, dia pasti kalah.
+Dia tertawa dingin pada dirinya sendiri. Dia tahu bahwa ini bukanlah sesuatu yang dapat dia balas sekarang. Di sekte, yang kuat selalu benar. Beberapa murid kehormatan telah lama berada di sini, dan tubuh mereka semua sangat kuat. Beberapa bahkan telah mempelajari beberapa teknik abadi. Jika dia melawan, dia pasti kalah.
 
 Namun, Wang Lin tidak sepenuhnya penurut. Dia ingat wajah semua murid yang memandang rendah dia dan berencana untuk membalas dendam ketika dia menjadi cukup kuat.
 
@@ -16,15 +16,15 @@ Tetapi ada berbagai jenis embun. Embun yang muncul pada manik di pagi hari adala
 
 Terbaik berikutnya adalah ketika dicampur dengan mata air. Darah dan keringat adalah yang terburuk, hampir tidak berpengaruh sama sekali.
 
-Agar tidak menarik perhatian, dia menemukan beberapa labu kecil di alam liar dan melubangi mereka untuk menahan sebagian embun.
+Agar tidak menarik perhatian, dia menemukan beberapa labu kecil di alam liar dan melubangi mereka untuk menampung sebagian embun.
 
 Dia tidak membawa labu ini bersamanya. Sebaliknya, dia akan menyembunyikannya secara terpisah di lokasi terpencil. Dia hanya akan mengeluarkannya ketika dia mengambil air dan tidak pernah membawanya kembali ke sekte.
 
 Dia membawa labu bersamanya saat dia bekerja. Setiap kali dia lelah, dia akan minum dan langsung merasa segar.
 
-Selain itu, Wang Lin mengetahui tentang fenomena aneh. Kapanpun embun malam atau dini hari muncul pada manik batu, akan terlihat seperti ada banyak tetes embun pada manik, tapi saat mengumpulkannya, dia hanya bisa mendapatkan sepersepuluh dari jumlah itu. Sisanya menghilang.
+Selain itu, Wang Lin mengetahui tentang fenomena aneh. Kapan pun embun malam atau dini hari muncul pada manik batu, akan terlihat seperti ada banyak tetes embun pada manik, tapi saat mengumpulkannya, dia hanya bisa mendapatkan sepersepuluh dari jumlah itu. Sisanya menghilang.
 
-Adapun fenomena aneh ini, Wang Lin hanya bisa mengatakan bahwa embun diserap oleh manik-manik itu. Meskipun penjelasannya agak tidak masuk akal, dia benar-benar tidak bisa memikirkan hal lain.
+Adapun fenomena aneh ini, Wang Lin hanya bisa berasumsi bahwa embun diserap oleh manik-manik itu. Meskipun penjelasannya agak tidak masuk akal, dia benar-benar tidak bisa memikirkan hal lain.
 
 Hari ini saat senja, Wang Lin mengisi tiga tong yang tersisa dan berkata kepada murid berpakaian kuning itu saat dia sedang bermeditasi, “Saudara Liu, saya akan melakukan perjalanan pulang jadi saya tidak akan datang besok.”
 
@@ -42,7 +42,7 @@ Melihat pemuda berpakaian putih, hati Wang Lin menegang saat dia mengangguk.
 
 Dia sudah tahu semua murid Heng Yue Sekte diberi peringkat berdasarkan warna yang mereka kenakan. Murid kehormatan dibagi menjadi abu-abu dan kuning. Kuning diberi hak untuk mulai menanam teknik abadi. Murid batin diberi peringkat berdasarkan kekuatan mereka. Dari tinggi ke rendah berwarna ungu, hitam, putih dan merah.
 
-Pemuda dengan mulut putih mengejang dan dia menatap Wang Lin dengan dingin sebelum berbalik dan berjalan kembali ke halaman. Wang Lin mengikuti di belakangnya dengan wajah datar.
+Pemuda dengan pakaian putih mengejang dan dia menatap Wang Lin dengan dingin sebelum berbalik dan berjalan kembali ke halaman. Wang Lin mengikuti di belakangnya dengan wajah datar.
 
 Setelah berjalan melewati halaman sebentar, dia sampai di sebuah rumah yang dikelilingi oleh bunga. Pemuda berkulit putih dengan malas berkata, “Guru Sun, seorang murid kehormatan ada di sini untuk bertemu denganmu.”
 
@@ -75,3 +75,15 @@ Setelah berjalan keluar dari halaman, Wang Lin kembali ke kamarnya. Setelah meng
 Saat ini, bintang-bintang sedang bersinar di langit. Wang Lin ingin pulang besok, tetapi dia tidak ingin menggunakan jimat itu dan takut dia akan melewatkan ulang tahun ayahnya, jadi dia pergi keluar pada malam hari.
 
 Tak lama setelah Wang Lin pergi, tetua Sun keluar dari kamarnya untuk mengumpulkan beberapa tanaman obat, tetapi tiba-tiba tertegun. Dia menatap pintu gerbang. Semua rumput biru yang tumbuh di sana telah layu.
+
+## Opini
+
+- **Opini:** Wang Lin menunjukkan tekad dan kecerdasan dengan memanfaatkan waktu dan sumber daya yang ada untuk melatih dirinya sendiri meskipun menghadapi kesulitan.
+- **Opini:** Sikap arogan dan kejam dari murid kehormatan lain menunjukkan bagaimana kekuasaan dan status dapat mempengaruhi perilaku seseorang.
+- **Opini:** Dukungan jimat abadi dari sekte menunjukkan bahwa meskipun ada aturan ketat, ada juga alat dan bantuan yang diberikan kepada murid untuk mencapai tujuan mereka.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._
