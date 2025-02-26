@@ -1,6 +1,6 @@
 # Chapter 19 – Dikejar Keluar
 
-Ketika dia memikirkan labu itu, dia tidak bisa mengendalikan amarahnya. Tidak peduli bagaimana dia memandang labu dalam perjalanan pulang, mereka terlihat normal. Dia bahkan mengosongkannya untuk diisi dengan mata air. Dia ditemukan oleh sesama saudara magang dan ditertawakan.
+Ketika dia memikirkan labu itu, Sun Dazhu tidak bisa mengendalikan amarahnya. Tidak peduli bagaimana dia memandang labu dalam perjalanan pulang, mereka terlihat normal. Dia bahkan mengosongkannya untuk diisi dengan mata air. Dia ditemukan oleh sesama saudara magang dan ditertawakan.
 
 Wang Lin mencibir di dalam hatinya, tetapi di permukaan dia memasang wajah polos saat dia berkata, “Saya tidak tahu apa itu energi spiritual. Saya baru saja mendengar Anda mengatakan bahwa Anda akan memberi saya batu roh jika saya membawakan Anda labu. Bagaimana jika Anda menjelaskan kepada saya apa itu energi spiritual?”
 
@@ -67,3 +67,15 @@ Dia semakin yakin bahwa ini benar, menyebabkan hatinya sakit. Bulan ini, dia tid
 Setiap kali dia melihat Wang Lin, dia akan marah. Sekarang, dia sudah hilang dari pandangan dan pikirannya. Setelah beberapa saat, dia benar-benar melupakan murid itu.
 
 Dia berpikir lagi. Meskipun Wang Lin telah minum obat selama sebulan penuh, masih butuh delapan sampai sepuluh tahun bagi Wang Lin untuk mencapai lapisan pertama Kondensasi Qi, kecuali dia terus meminum obat tersebut.
+
+## Opini
+
+- **Opini:** Pengalaman Wang Lin menunjukkan bahwa kecemburuan dan kebencian bisa datang dari orang-orang di sekitar kita ketika kita mencapai sesuatu yang lebih dari mereka.
+- **Opini:** Usaha Wang Lin untuk mencari labu yang diinginkan oleh Sun Dazhu menunjukkan ketekunannya dalam menghadapi tantangan dan manipulasi.
+- **Opini:** Reaksi Sun Dazhu yang marah menggambarkan bagaimana ambisi pribadi dan frustrasi dapat mengaburkan penilaian dan tindakan seseorang.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._

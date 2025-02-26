@@ -60,5 +60,16 @@ Salah satu gadis di samping berkata, “Wang Lin? Ah, jadi kaulah yang menjadi m
 
 Wajah dua lainnya penuh dengan keterkejutan, tatapan terkunci pada Wang Lin. Salah satu gadis memiliki mata besar seperti anak kecil, dihiasi bulu mata yang indah. Matanya seperti dua bola kristal, dan terlihat tertarik.
 
-Wajah Wang Lin tampak datar saat dia mengamati orang-orang di depannya. Saat dia mendengar suara gadis itu, dia menyadari bahwa gadis itu yang mengejek Wang Zhuo. Tapi melihatnya, dia terlihat sangat familiar. Wang Lin berpikir dengan hati-hati dan mengingat bahwa dialah yang telah dipilih selama pemilihan murid beberapa bulan yang lalu. Setelah mengenalinya, dia menyimpulkan bahwa yang lainnya pasti adalah saudara perempuan Magang Zhou, yang kepadanya Wang Zhuo mencoba memberikan bunga itu.
+Wang Lin tampak datar saat dia mengamati orang-orang di depannya. Saat dia mendengar suara gadis itu, dia menyadari bahwa gadis itu yang mengejek Wang Zhuo. Tapi melihatnya, dia terlihat sangat familiar. Wang Lin berpikir dengan hati-hati dan mengingat bahwa dialah yang telah dipilih selama pemilihan murid beberapa bulan yang lalu. Setelah mengenalinya, dia menyimpulkan bahwa yang lainnya pasti adalah saudara magang Zhou, yang kepadanya Wang Zhuo mencoba memberikan bunga itu.
 
+## Opini
+
+- **Opini:** Pembelajaran Wang Lin tentang tahapan kultivasi menunjukkan pentingnya pengetahuan dan pemahaman dalam proses kultivasi.
+- **Opini:** Ketekunan Wang Lin dalam mencari dan menggunakan manik batu untuk mempercepat kultivasinya menunjukkan dedikasinya untuk mencapai tujuannya.
+- **Opini:** Reaksi murid lain terhadap Wang Lin menunjukkan bahwa kecemburuan dan prasangka bisa muncul ketika seseorang mencapai sesuatu yang lebih dari mereka.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._

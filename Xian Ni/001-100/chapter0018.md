@@ -57,3 +57,15 @@ Wang Lin segera dengan hormat menyerahkan labu tersebut kepada sesepuh dan berka
 Sun Dazhu hampir kehilangan kesabarannya, tetapi menelannya dan nyaris tidak bisa tersenyum. Ia mengambil labu tersebut dan melemparkannya ke samping tanpa melihat, lalu berkata kepada Wang Lin, kata demi kata, “Labu yang saya inginkan adalah yang diisi dengan energi spiritual seperti sebelumnya. Mengapa saya ingin labu acak?”
 
 Dia tidak bisa mengendalikan amarahnya, jadi dia akhirnya meneriakkan beberapa kata terakhir. Dia menghabiskan sepanjang hari mengikuti anak ini dan ditipu olehnya untuk memetik dan menguji beberapa labu biasa.
+
+## Opini
+
+- **Opini:** Pengalaman Wang Lin menunjukkan bahwa kecemburuan dan kebencian bisa datang dari orang-orang di sekitar kita ketika kita mencapai sesuatu yang lebih dari mereka.
+- **Opini:** Usaha Wang Lin untuk mencari labu yang diinginkan oleh Sun Dazhu menunjukkan ketekunannya dalam menghadapi tantangan dan manipulasi.
+- **Opini:** Reaksi Sun Dazhu yang marah menggambarkan bagaimana ambisi pribadi dan frustrasi dapat mengaburkan penilaian dan tindakan seseorang.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._

@@ -62,3 +62,14 @@ Wang Lin diam-diam mencibir, tetapi di permukaan dia dengan hormat mengangguk se
 
 Tangan kanan Sun Dazhu membentuk segel dan dia menggumamkan beberapa patah kata, lalu dia melempar lengannya dan gerbang pun terbuka. Dia mengusap janggutnya dan berkata, “Silakan. Pergi sekarang dan cepat kembali.”
 
+## Opini
+
+- **Opini:** Penerimaan Wang Lin sebagai murid di bawah Sun Dazhu menunjukkan bahwa meskipun ada niat tersembunyi, kesempatan untuk belajar dan berkultivasi tetaplah penting.
+- **Opini:** Metode kultivasi yang dijelaskan dalam buklet Tiga Tahap Kondensasi Qi menunjukkan bahwa perjalanan menuju kultivasi tidaklah mudah dan membutuhkan ketekunan serta pemahaman yang mendalam.
+- **Opini:** Sikap Sun Dazhu yang menginginkan lebih banyak labu menunjukkan bagaimana ambisi dan keinginan pribadi dapat mempengaruhi tindakan seseorang, bahkan dalam lingkungan yang seharusnya mendukung perkembangan spiritual.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._

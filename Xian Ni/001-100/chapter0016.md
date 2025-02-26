@@ -1,6 +1,6 @@
 # Chapter 16 – Murid
 
-Di bawah mata tetua itu, Wang Lin merasa dia transparan dan tetua itu bisa melihat segalanya.
+Di bawah tatapan tetua itu, Wang Lin merasa dia transparan dan tetua itu bisa melihat segalanya.
 
 Tetua itu mengerutkan kening. Dia tidak dapat menemukan sesuatu yang abnormal tentang Wang Lin, lalu bertanya, “Wang Lin, kapan kamu kembali?”
 
@@ -55,3 +55,15 @@ Wang Lin merenungkan ini sebentar, lalu terkekeh. Dia hanya ingin beberapa labu.
 Setelah memikirkannya, dia menjadi sangat bersemangat. Dia mengemasi barang-barangnya dan meninggalkan banyak ubi untuk Zhang Hu. Dia kemudian mulai berjalan menuju halaman Elder Sun.
 
 Kali ini, dia tidak mengumumkan kedatangannya dan langsung berjalan ke halaman. Pemuda berpakaian putih, yang sedang duduk di atas pohon, tidak menghentikannya. Dia sudah menerima berita bahwa Tetua Sun telah menerima Wang Lin sebagai muridnya. Pemuda itu tertawa, berkata pada dirinya sendiri, “Seorang guru sampah menerima murid sampah. Ini sangat pas.”
+
+## Opini
+
+- **Opini:** Kecurigaan dan perhatian yang diterima Wang Lin dari murid lain menunjukkan bahwa bahkan dalam lingkungan kompetitif, ketekunan dan perubahan perilaku dapat menarik perhatian.
+- **Opini:** Perubahan sikap Murid Liu terhadap Wang Lin menunjukkan bagaimana kekuasaan dan pengaruh dapat mengubah dinamika hubungan.
+- **Opini:** Keberanian Wang Lin dalam menghadapi kecurigaan dan tatapan dingin Penatua Sun menunjukkan bahwa dia siap menghadapi tantangan yang lebih besar demi mencapai tujuannya.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._
