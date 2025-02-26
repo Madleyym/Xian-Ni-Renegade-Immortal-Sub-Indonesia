@@ -2,11 +2,11 @@
 
 Selama beberapa hari berikutnya, Wang Lin mengandalkan burung yang tersedot ke dalam gua dan berceceran di dinding untuk makanan. Dia menghabiskan sebagian besar waktunya dengan cermat mengamati manik-manik batu. Setiap kali embun muncul, dia akan mengoleskannya di lengannya. Dia melakukan ini sampai lengannya pulih sepenuhnya. Dia tahu embun ini sangat berharga, jadi dia mengumpulkan beberapa di tengkorak burung.
 
-Pada hari ini, dia memercikkan embun yang telah dia kumpulkan selama beberapa hari terakhir ini pada selembar kain dan dengan hati-hati membengkokkan manik-manik di dalamnya. Setelah memastikan itu tidak akan jatuh, dia tiba di pintu masuk gua ketika kekuatan hisap berhenti. Dia menggunakan giginya untuk merobek pakaiannya dan mengikatnya menjadi satu, lalu mengikat satu ujung ke batu dan ujung lainnya di pinggang dan perlahan-lahan turun.
+Pada hari ini, dia memercikkan embun yang telah dia kumpulkan selama beberapa hari terakhir ini pada selembar kain dan dengan hati-hati membungkus manik-manik di dalamnya. Setelah memastikan itu tidak akan jatuh, dia tiba di pintu masuk gua ketika kekuatan hisap berhenti. Dia menggunakan giginya untuk merobek pakaiannya dan mengikatnya menjadi satu, lalu mengikat satu ujung ke batu dan ujung lainnya di pinggang dan perlahan-lahan turun.
 
 Wang Lin telah turun sekitar lima atau enam meter ketika tangannya tergelincir. Tubuhnya jatuh dengan cepat, tapi untungnya pakaiannya keras dan memberinya waktu untuk berayun ke arah tebing dan meraih dahan sebelum kainnya robek.
 
-Keringat dingin membasahi dahi Wang Lin. Ketika dia melihat ke bawah, dia memperkirakan bahwa dia masih setinggi 20 meter. Dengan satu tangan, dia meraih sebuah dahan dan dengan tangan yang lain dia meraih kain dan mengikatkan kain itu ke dahan, Baru kemudian dia merasa lega.
+Keringat dingin membasahi dahi Wang Lin. Ketika dia melihat ke bawah, dia memperkirakan bahwa dia masih setinggi 20 meter. Dengan satu tangan, dia meraih sebuah dahan dan dengan tangan yang lain dia meraih kain dan mengikatkan kain itu ke dahan. Baru kemudian dia merasa lega.
 
 Dia dengan hati-hati bergerak kembali ke tepi tebing dan kemudian mulai turun lagi. Ketika dia berada 10 meter dari tanah, kain itu telah meregang hingga batasnya, Wang Lin melompat tanpa berpikir dua kali.
 
@@ -55,3 +55,15 @@ Di sebelahnya, seorang pria paruh baya dengan wajah dingin berkata, “Apa yang 
 Seorang lelaki tua berjubah menyesap teh dan berkata perlahan, “Pada kenyataannya, bukankah karena Sekte Heng Yue kita telah menolak sehingga kita harus memilih murid yang cocok untuk kultivasi dari manusia? Jika itu 500 tahun yang lalu, siapa yang peduli apa yang manusia pikirkan?”
 
 Akhirnya, seorang tua yang penuh keriput menghela nafas dan berkata, “Jika pemuda ini pernah mencoba bunuh diri, dia bisa mencoba bunuh diri lagi. Bah, untuk mencegah masalah ini berlanjut, mari kita buat pengecualian dan terima dia sebagai murid.” Setelah dia selesai berbicara, dia melirik pria paruh baya itu.
+
+## Opini
+
+- **Opini:** Keputusan Wang Lin untuk turun dari tebing menunjukkan keberanian dan tekad yang luar biasa, meskipun menghadapi risiko besar.
+- **Opini:** Dukungan orang tua Wang Lin yang terus-menerus menunjukkan cinta tanpa syarat dan pentingnya keluarga dalam menghadapi tantangan hidup.
+- **Opini:** Diskusi di antara para tetua Sekte Heng Yue menggambarkan bagaimana keputusan-keputusan besar kadang-kadang diambil untuk mempertahankan reputasi dan keberlanjutan sebuah institusi.
+
+## Selamat membaca dan mengikuti perjalanan Wang Lin!
+
+---
+
+_Disclaimer: Rangkuman dan opini pribadi tentang novel Xian Ni ini bukan terjemahan resmi._
